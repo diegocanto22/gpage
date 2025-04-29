@@ -1,1 +1,1 @@
-Canto Gomez Diego Lizandro 2AMPr.
+Canto Gomez Diego - Lizandro 2AMPr
