@@ -1,1 +1,1 @@
-Nombre grado y grupo
+Canto Gomez Diego Lizandro 2AMPr
